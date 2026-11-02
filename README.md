@@ -1,7 +1,3 @@
 
-
-
-
-
 # ai-agent
 coming soon
