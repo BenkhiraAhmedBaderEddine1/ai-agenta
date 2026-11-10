@@ -11,4 +11,4 @@ coming soon⚞^. .^⚟
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 AI
 agent
-coom
+cooming
